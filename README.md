@@ -1,0 +1,2 @@
+# mymarymagdalene
+ոչինչ չեմ հասկանում
